@@ -75,7 +75,7 @@ I aim to become a **professional game developer** specializing in:
 
 ## 📫 Contact Me
 
-📧 Email: your@email.com  
+📧 Email: contact.sabashagidze@gmail.com
 💼 LinkedIn: https://www.linkedin.com/in/saba-shagidze/  
 
 ---
